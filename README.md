@@ -5,7 +5,7 @@ The woke Tica:
 
 ![Woke Tica Toc](Woke-Tica-Toc.png)
 
-The sheeple Tica:
+The sleeple Tica:
 
 ![Sheeple Tica Toc](Sheeple-Tica-Toc.png)
 
